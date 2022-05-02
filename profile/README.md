@@ -1,4 +1,4 @@
-## Hi there 👋
+# Protect your server today using our fantastic systems! <p> [Protect my server now!](https://neoprotect.net/)
 
 <!--
 
